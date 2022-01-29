@@ -116,3 +116,8 @@ Format
 
 ## [Aishwarya Singh](https://github.com/combatantash)
 
+## [KishanShinde](https://github.com/kishan2002)
+
+## [Parteek](https://github.com/Pdahiya5033)
+
+
